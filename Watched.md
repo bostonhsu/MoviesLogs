@@ -14,3 +14,4 @@
 # 《格拉祖诺夫、德沃夏克小提琴协奏曲》  2017年6月4日
 # 《普罗科菲耶夫：第三号钢琴协奏曲（阿格丽姬）》 2017年6月5日
 # 《Edith Piaf 金曲集》  2017年6月6日
+# 《Louis Armstrong - Greatest Hits the Indispensable (Digitally Remastered)》  2017年6月13日
