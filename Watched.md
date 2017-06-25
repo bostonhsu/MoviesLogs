@@ -18,3 +18,4 @@
 # 《理查德.克莱德曼钢琴曲精选》  2017年6月13日
 # 《The Piano Guys - Hello LACRIMOSA》  2017年6月22日
 # 《The Piano Guys - Story of My Life》  2017年6月22日
+# 《I've Got the World on a String(Remastered 2017)》 2017年6月24日
