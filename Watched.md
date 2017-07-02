@@ -20,3 +20,4 @@
 # 《The Piano Guys - Story of My Life》  2017年6月22日
 # 《Louis Armstrong - I've Got the World on a String(Remastered 2017)》 2017年6月24日
 # 《Louis Armstrong - Independence Day》 2017年6月27日
+# 《Louis Armstrong - The Centennial Anthology》 2017年7月01日
