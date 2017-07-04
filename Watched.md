@@ -23,3 +23,4 @@
 # 《Louis Armstrong - The Centennial Anthology》 2017年7月01日
 # 《金志文 - Hello 1》 2017年7月3日
 # 《Robert Rich - Eleven Questions》  2017年7月04日
+# 《小野丽莎 - Dancing Bossa》  2017年7月04日
