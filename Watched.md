@@ -22,3 +22,4 @@
 # 《Louis Armstrong - Independence Day》 2017年6月27日
 # 《Louis Armstrong - The Centennial Anthology》 2017年7月01日
 # 《金志文 - Hello 1》 2017年7月3日
+# 《Robert Rich - Eleven Questions》  2017年7月04日
