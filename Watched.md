@@ -25,3 +25,4 @@
 # 《Robert Rich - Eleven Questions》  2017年7月04日
 # 《小野丽莎 - Dancing Bossa》  2017年7月04日
 # 《Robert Rich - Lift a Feather to the Flood》  2017年7月05日
+# 《那些只听前奏就中毒的英文歌》  2017年7月06日
