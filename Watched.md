@@ -28,4 +28,5 @@
 # 《那些只听前奏就中毒的英文歌》  2017年7月06日
 # 《Robert Rich - Electric Ladder》 2017年7月06日
 # 《Robert Rich - Trances/Drones》 2017年7月07日
+# 《克莱德曼Meets詹姆斯.拉斯特》  2017年7月11日
 # 《Robert Rich - Premonitions 1980-85》  2017年7月13日
