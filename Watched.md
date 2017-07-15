@@ -30,3 +30,4 @@
 # 《Robert Rich - Trances/Drones》 2017年7月07日
 # 《克莱德曼Meets詹姆斯.拉斯特》  2017年7月11日
 # 《Robert Rich - Premonitions 1980-85》  2017年7月13日
+# 《Robert Rich - Strata》  2017年7月14日
