@@ -31,3 +31,5 @@
 # 《克莱德曼Meets詹姆斯.拉斯特》  2017年7月11日
 # 《Robert Rich - Premonitions 1980-85》  2017年7月13日
 # 《Robert Rich - Strata》  2017年7月14日
+# 《Robert Rich - Nest》  2017年7月21日
+# 《Tez Cadey - Seve》  2017年7月24日
