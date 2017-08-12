@@ -34,3 +34,5 @@
 # 《Robert Rich - Nest》  2017年7月21日
 # 《Tez Cadey - Seve》  2017年7月24日
 # 《Robert Rich - Stalker》  2017年7月31日
+# 《Robert Rich - Below Zero》  2017年8月04日
+# 《Tiesto - Boom》  2017年8月12日
