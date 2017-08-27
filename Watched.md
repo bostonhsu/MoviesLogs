@@ -36,3 +36,4 @@
 # 《Robert Rich - Stalker》  2017年7月31日
 # 《Robert Rich - Below Zero》  2017年8月04日
 # 《Tiesto - Boom》  2017年8月12日
+# 《Carreras.Domingo.Pavarotti: The Three Tenors in Concert》 2017年8月27日
